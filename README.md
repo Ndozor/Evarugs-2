@@ -1,1 +1,1 @@
-# https://annaverst.github.io/Ndozor/Evarugs-2
+# https://ndozor.github.io/Evarugs-2
